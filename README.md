@@ -1,4 +1,4 @@
-### Hi there 👋, My name is [Deepali Jain](https://www.researchgate.net/profile/Deepali-Jain-7)
+### Hi there 👋, My name is [Deepali Jain](https://sites.google.com/view/deepalijain/home?authuser=3)
 
 Hi,
 
